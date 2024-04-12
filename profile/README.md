@@ -1,4 +1,5 @@
 # **αlpha**
+<img src="https://github.com/alphaCSH/.github/assets/99090690/183af963-2200-4e9b-bec7-2c1ee499f8a4.png" width="500" height="300"/>  
 
 ### VISION
 *__+α__ to __-α__*  
